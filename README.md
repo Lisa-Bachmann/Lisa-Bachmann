@@ -1,4 +1,4 @@
-🪐 Aerospace engineer (B.Sc.)<br>
+🪐 Aerospace engineer (M.Sc.)<br>
 🎓 currently studying at University of Stuttgart<br>
 ✈️ interested in experimental and numerical fluid dynamics<br>
 💥 currently learning about hydrogen combustion<br>
